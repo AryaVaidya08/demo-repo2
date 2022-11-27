@@ -8,3 +8,4 @@ and an even bigger heart
 
 1. Open index.html in your browser
 2. Come out of the closet
+3. KYS
